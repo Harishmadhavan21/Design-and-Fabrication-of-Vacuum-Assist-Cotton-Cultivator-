@@ -1,1 +1,0 @@
-# Design-and-Fabrication-of-Vacuum-Assist-Cotton-Cultivator-
